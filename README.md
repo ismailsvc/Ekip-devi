@@ -1,0 +1,4 @@
+16008125065 İsmail SAVCI
+16008125057 Esra YILDIRIM
+16008125007 Mayar Salah Mahdi Al-Humairi
+16008125079 Bedirhan Ayaz Çiftçi
